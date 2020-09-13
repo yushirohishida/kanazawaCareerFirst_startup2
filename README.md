@@ -1,0 +1,1 @@
+# kanazawaCareerFirst_startup2
